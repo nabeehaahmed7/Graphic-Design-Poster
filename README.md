@@ -1,0 +1,1 @@
+In my graphic design class, everyone was asked to design a sample poster for the school production of Anastasia. Once all samples were submitted, the theater department chose to use the poster I designed. I then worked with them to get a picture of teh actual actress for the musical and create the final poster. 
